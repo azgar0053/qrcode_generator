@@ -35,7 +35,7 @@ Click Download to save the QR code
 
 🎥 ** Tutorial Video**
 
-Watch the full step-by-step video on YouTube: 
+Watch the full step-by-step video on YouTube: https://youtu.be/pJCOEYGlkCE
 
 
 📸 Screenshots
